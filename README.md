@@ -1,1 +1,1 @@
-# Market-Trends-and-Customer-Insights-Analysis-
+# Market Trends and Customer Insights Analysis
